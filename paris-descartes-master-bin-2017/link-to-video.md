@@ -5,3 +5,5 @@ Indeed, this video is great to demonstrate how the different states of disorders
 This extraordinarily rare video shows a patient who went from unresponsive wakefulness syndrome (the least aware disorder of consciousness, from 0:00 to 0:37) to minimally conscious state (from 0:37 to 1:12), then emergence from minimially conscious state (from 1:12 to 2:18) and finally full recovery (2:18 to the end). The different states aren't labelled in the video but it's roughly linear and I above delineated the different segments.
 
 The original video, titled "Vegetative Patient wakes up after stem cell procedure : A Hope", can be found online here: https://www.youtube.com/watch?v=cIE6EOl6ixo
+
+A mirror is available in the Web Archive: https://archive.org/details/youtube-cIE6EOl6ixo
